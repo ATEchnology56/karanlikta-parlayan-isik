@@ -1,1 +1,1 @@
-# Karanlikta-parlayan-isik
+# Karanlıkta Parlayan Işık
