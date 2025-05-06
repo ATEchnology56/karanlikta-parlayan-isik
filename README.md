@@ -1,0 +1,1 @@
+# Karanlikta-parlayan-isik
